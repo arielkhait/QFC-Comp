@@ -1,1 +1,1 @@
-QFC Compeititon Code and Presentations
+QFC Competition Code and Presentations
